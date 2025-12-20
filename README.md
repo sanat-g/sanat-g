@@ -1,2 +1,2 @@
-- 👋 hi, I’m @sanat-g
-- reach me: sanatguduru@gmail.com
+- 👋 Hi, I’m @sanat-g
+- Reach me: sanatguduru@gmail.com
