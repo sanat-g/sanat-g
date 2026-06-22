@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @sanat-g
-- Reach me: sanatguduru@gmail.com
+- Reach me: s2guduru@uwaterloo.ca
