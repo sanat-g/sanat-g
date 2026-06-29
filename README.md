@@ -1,2 +1,1 @@
-- 👋 Hi, I’m @sanat-g
-- sanatguduru.me
+👋 Hi, I’m Sanat!
